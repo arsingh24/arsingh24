@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @arsingh24
 - 👀 I’m interested in Coding, Devlopment.
 - 🌱 I’m currently learning.
-- 📫 How to reach me @theth_bihari_
+- 📫 How to reach me on insta--@theth_bihari_
 
 <!---
 arsingh24/arsingh24 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
